@@ -1,0 +1,3 @@
+take a slice of bread then apply some butter in top of the bread slice then take one slice of cheese and put it in top of the bread,take a tomato and cut it into circular pieces,do same for the cucumber and capsicum,put some slices of tomato,cucumber and capsicum in top of the cheese slice in the bread and take one more slice of bread and apply some tomato ketchup in top of this ,now put this slice of bread in top of the the other slice in which we have put the vegetables and our sandwich is ready...
+
+done!!!
